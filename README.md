@@ -1,0 +1,1 @@
+# MochammadSyahrul-Ramadhan-2300878-PILKOM-B-Praktikum-UTS
